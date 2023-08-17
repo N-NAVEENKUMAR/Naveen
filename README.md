@@ -1,2 +1,0 @@
-# Naveen
-Learning Purpose
